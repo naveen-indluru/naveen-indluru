@@ -1,4 +1,4 @@
-### Here is what I'm working on.! 👋
+### So far I am a Machine Learning Engineer 👋
 
 
 Here are some ideas to get you started:
