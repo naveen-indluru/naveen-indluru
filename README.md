@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [Linkedin](https://www.linkedin.com/in/naveen-indluru-068992148/)
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... Keep moving forward
+- ⚡ Fun fact: ... Keep moving forward no matter what
